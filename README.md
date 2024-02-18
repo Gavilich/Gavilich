@@ -10,3 +10,4 @@
 Gavilich/Gavilich is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Galxe is the leading platform for building Web3 community. With over 14 million unique users, Galxe has propelled the growth of Optimism, Polygon, Arbitrum, and more than 4000 partners with reward-based loyalty programs.
