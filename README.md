@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gavilich
-- 👀 I’m interested in storts
+- 👀 I’m interested in sports? mostly Football (fan of Zenit)
 - 🌱 I’m currently learning nithing. I know everything. My sofa helps me)))
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
