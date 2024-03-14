@@ -2,4 +2,4 @@
 - 👀 I’m interested in sports? mostly Football (fan of Zenit)
 - 🌱 I’m currently learning nithing. I know everything. My sofa helps me)))
 - 📫 How to reach me @gavilich
-- ⚡ Fun fact: aka Reek, Tatar nation
+- ⚡ Fun fact: aka Reek, Tatar nation, love to eat
